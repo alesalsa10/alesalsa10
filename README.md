@@ -1,0 +1,1 @@
+- 👋 Hi, I’m Alex. I am a web developer, whose interested lie mostly in front end development. Looking for opportunities in the Tampa Bay area, but willing to relocate for a great opportunity. You can contact me at alexandersalsa10@gmail.com.
